@@ -1,1 +1,0 @@
-# acehnese-translation-on-pontoon-mozilla
